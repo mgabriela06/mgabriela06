@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil mgabriela06 😁
+## Bem-vindo(a) ao perfil mgabriela06 
 
  <div>
    <a href="https://github.com/mgabriela06">
